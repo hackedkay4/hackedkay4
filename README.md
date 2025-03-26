@@ -8,6 +8,7 @@
 - ⚡ Fun fact: ... speed %0.5
 - ✅ NO BAN 100%
 - HEADSHOT 80%
+- SECURITY 1000%
 - 1 DAYS
 - PASSWORD 🔑
 - )112
